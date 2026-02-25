@@ -1,0 +1,13 @@
+A Era do Antropoceno: Impactos Humanos, Consciência e Resposta Artística 
+
+O Antropoceno marca uma nova era geológica onde a atividade humana se tornou uma força ambiental dominante, moldando o estado do planeta. O desmatamento, por exemplo, é uma prova irrefutável do nosso impacto nessa fase.
+
+Luiz Alberto de Oliveira enfatiza que, hoje, é impossível analisar mudanças climáticas ou variações ecossistêmicas sem considerar a influência da civilização. Ele usa o desmatamento na Amazônia como um exemplo contundente: destruir áreas equivalentes a campos de futebol na Amazônia afeta até mesmo o deserto australiano, devido ao transporte de partículas de queimadas pelos ventos. Isso evidencia como a exploração predatória da natureza tem impactos globais e contribui para a diminuição de corais, plantas e animais.
+
+Corroborando essa perspectiva, Lucia Santaella destaca que o Antropoceno está no cerne das discussões internacionais e artísticas. Ela o descreve como um período de marcas destrutivas na biosfera, levando à extinção de espécies e ameaçando a própria sobrevivência humana.
+
+Nossa agenda se concentra em investigar e quantificar o progresso do desmatamento no contexto do novo Antropoceno, compreendendo suas implicações globais e locais, e identificando caminhos para a conscientização e ação. Para analisar o desmatamento entre o ano de 2000 até 2023 usamos os dados disponibilizados pelo repositório digital Base dos Dados (https://basedosdados.org/search?q=prodes). Por último, analisamos se há correlação entre o avanço da agropecuária e o desmatamento.
+Diante desses desafios urgentes, a arte emerge como um poderoso meio de resposta e conscientização. Como por exemplo, o projeto #EntrancedEarth_Panorama, da Luiza Helena Guimarães, que é um exemplo notável. 
+LINK DOS SLIDES DA APRESENTAÇÃO COM UM PEQUENO VÍDEO NO FINAL: https://docs.google.com/presentation/d/1d8tF44Mye08jSvqLU8GOGnOByIjgIszyIrXGoeT_fck/edit?usp=sharing 
+](https://docs.google.com/presentation/d/1d8tF44Mye08jSvqLU8GOGnOByIjgIszyIrXGoeT_fck/edit?usp=sharing)
+Aluna: Laís Menezes de Souza Silva
